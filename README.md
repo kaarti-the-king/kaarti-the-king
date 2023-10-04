@@ -1,0 +1,5 @@
+- 👋 Hi, I’m kaarti
+- 👀 I’m interested in anything & everything relating to computers
+- 🌱 I’m currently learning to become a chartered accountant (ACCA)
+- 📫 You can Mail me through---> kaarti_the_king@hotmail.com
+-  ❗ If you are contacting me pls clearly state your name
